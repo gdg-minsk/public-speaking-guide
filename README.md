@@ -1,0 +1,1 @@
+# gdg-minsk-public-speaking-guide
